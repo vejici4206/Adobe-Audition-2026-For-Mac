@@ -1,0 +1,1 @@
+# Adobe-Audition-2026-For-Mac
